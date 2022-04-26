@@ -4,4 +4,4 @@
 
 >*Father of a 1 year daughter, Arsenal fan, Big gamer, Looking to continue in my journey of a new career*
 
->*beginner wanting to pick up coding skills for a new role I am applying for at my work*
+>*beginner wanting to pick up coding skills for a new role I am applying for at my work* :Joy:
